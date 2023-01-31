@@ -22,7 +22,7 @@
 
 - 📫 How to reach me **hieu01672549298@gmail.com**
 
-- 📄 Know about my experiences [😅 sorry, I don't have much experience, but I can try to learn hard every day.](😅 sorry, I don't have much experience, but I can try to learn hard every day.)
+- 📄 Know about my experiences: 😅 sorry, I don't have much experience, but I can try to learn hard every day.
 
 - ⚡ Fun fact **I think I am funny, kind, enthusiasm and sociable**
 
